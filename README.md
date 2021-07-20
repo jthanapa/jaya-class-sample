@@ -1,0 +1,1 @@
+# jaya-class-sample
